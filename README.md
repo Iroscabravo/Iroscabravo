@@ -11,7 +11,10 @@
 Gmail: bravoirosca@gmail.com 
 @Irosca_bravo
 
+![](https://media1.tenor.com/m/IX3ZyB3lxKoAAAAC/kuromi-sanrio.gif)
 
-(https://media1.tenor.com/m/IX3ZyB3lxKoAAAAC/kuromi-sanrio.gif)
+
+
+
 
 
